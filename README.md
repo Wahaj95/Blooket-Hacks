@@ -1,2 +1,2 @@
 # Blooket-Hacks
-Learn Blooket hack here: https://techkluster.com/git/blooket-hacks/
+Learn <a href="https://techkluster.com/git/blooket-hacks/" rel="nofollow">Blooket hack</a> 
